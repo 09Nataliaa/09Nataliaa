@@ -1,3 +1,4 @@
 -Olá me chamo Natalia
 -Sou estudande de pensamento computacional do 1A
 -E-mail de contato:s.natalia07@escola.pr.gov.br
+-😸
